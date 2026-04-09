@@ -1,4 +1,4 @@
-# Hi, I'm [Your Name]
+# Hi, I'm Anoudh ismail
 
 🎓 MBA Student (Business Analytics)  
 📊 Aspiring Business Analyst  
